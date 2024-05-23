@@ -1,4 +1,5 @@
-<h1 align="center" > May the peace, blessings, and mercy of God be upon you  😊🤞</h1>
+<h2 align="center" >“The more I study, the more insatiable do I feel my genius for it to be . ” </h2>
+
 
 <p align="center">
   <em>
