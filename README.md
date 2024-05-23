@@ -1,4 +1,4 @@
-<h2 align="center" >“The more I study, the more insatiable do I feel my genius for it to be . ” </h2>
+<h2 align="center" > <em>“The more I study, the more insatiable do I feel my genius for it to be . ”  </em> </h2>
 
 
 <p align="center">
