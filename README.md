@@ -50,9 +50,6 @@
 
 </div>
 
-## 🔗 Connect with me on :
-
-[![Connect on LinkedIn] (https://www.linkedin.com/in/aya-mohamed-awaad-4661862a1/)
 
 
 <hr />
